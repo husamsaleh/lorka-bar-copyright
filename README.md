@@ -1,0 +1,1 @@
+# lorka-bar-copyright
